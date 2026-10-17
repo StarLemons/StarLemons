@@ -2,7 +2,7 @@ Ever feel like you dont fit in?... *these* people don't understand you,, ***But 
 
 **SO JOIN THE MANIPULATOR CLUB NOW BY FOLLOWING ME** 😳😳
 
-<img width="710" height="710" alt="image" src="https://github.com/user-attachments/assets/5cf06b68-d631-4564-b27a-98a9682ebea1" />
+<img width="310" height="310" alt="image" src="https://github.com/user-attachments/assets/5cf06b68-d631-4564-b27a-98a9682ebea1" />
 
 THE MANIPULATOR CLUB PROMISES THAT BY THE END OF THE YEAR YOU ARE GUARANTEED TO LEARN HOW TO:
 - Learn how to manipulate the situation and everyone...... 
