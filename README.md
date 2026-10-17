@@ -1,4 +1,4 @@
-Ever feel like you dont fit in?... *these* people don't understand you,, ***But I do.****
+Ever feel like you dont fit in?... *these* people don't understand you,, ***But I do.***
 
 **SO JOIN THE MANIPULATOR CLUB NOW BY FOLLOWING ME** 😳😳
 
