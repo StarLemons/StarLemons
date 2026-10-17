@@ -14,3 +14,6 @@ THE MANIPULATOR CLUB PROMISES THAT BY THE END OF THE YEAR YOU ARE GUARANTEED TO 
 Heh.. *Checkpoint*.
 
 <img width="735" height="603" alt="image" src="https://github.com/user-attachments/assets/540e9582-8f4f-449a-accc-e7dca9d938d3" />
+
+
+-# This is a joke
